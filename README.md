@@ -1,0 +1,1 @@
+Serenity Wellness Retreat is your ideal destination for physical and mental rejuvenation. We provide relaxing therapies such as massage, meditation, and aromatherapy to help you find balance and peace in life.
